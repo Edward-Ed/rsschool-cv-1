@@ -1,1 +1,1 @@
-### https://edwar-ed.github.io/rsschool-cv/cv
+### https://edward-ed.github.io/rsschool-cv/cv
